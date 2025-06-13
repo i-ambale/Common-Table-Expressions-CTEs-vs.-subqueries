@@ -112,4 +112,4 @@ Author: Ibrahim Ambale
 
 📍 Nairobi, Kenya
 
-🔗 LinkedIn: linkedin.com/in/ibrahim-ambale
+🔗 LinkedIn: [Ibrahim Ambale](linkedin.com/in/ibrahim-ambale)
